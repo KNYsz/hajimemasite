@@ -1,6 +1,5 @@
 # hajimemasite
 はじめてのぎっとはぶ
 わたしはささきひろむ
-asdadadwa
-j
+asdad
 aaaa
